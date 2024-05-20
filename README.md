@@ -2,8 +2,6 @@
 # 🔥 SHEFALI SHARMA 🔥
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=900&size=30&duration=1998&color=15F7ED&vCenter=true&multiline=true&random=false&width=833&height=170&lines=Microelectronics design Graduate;Master's+of+Science%2C+Electrical and Electronics Engineering;Clifornia+State+University%2C+Sacramento+Alumnus;Folsom%2C+Sacramento)](https://git.io/typing-svg)
-
 ---
 
 
